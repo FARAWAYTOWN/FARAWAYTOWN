@@ -4,6 +4,35 @@
   <img src="https://i.postimg.cc/wBh2gmHx/IMG-4541.png">
 </div>
 
+⠀
+
+<div align="center">
+  
+ **mari** / <ins>eden</ins>
+
+i fluctuate between she / they / he prns ,,, single fuckass nonbinary omnisexual .
+
+i have audhd as far as im willing to share .......
+⠀
+
+⠀
+
+⠀i **♡** my oomfs ;; seven , faris , niccolo , jay , zac !!!!
+
+⠀
+⠀
+
+mainly interested in dandys world , omori , alien stage , milgram , bbq ena , homestuck 
+
+, crk and pjo . extensively into uma musume , misc rblx fandoms , adventure time , south park .
+
+⠀
+
+sign mi atabook for ichor and read my ponytown rentry for extended info + boundaries .
+</div>
+
+⠀
+
 <div align="center">
   <img src="https://64.media.tumblr.com/fb2f0726adaca9614f9d59104cda700f/9cf984d66502401c-fb/s100x200/c8f4258a8b1db068419ef8b2f225d8633a1a29be.pnj">
   <img src="https://64.media.tumblr.com/ac5878cef18019f54c5624e2e09d4978/9cf984d66502401c-2c/s100x200/c75b8db53ffa22bc57992f7e8d917fcee94e646a.gif">
